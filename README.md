@@ -1,4 +1,4 @@
-## Hi there 👋
+## Hi there, Im a finance student that now has her hands into accounting, operations, and a lot of code ( all unintentional but now im hooked!). I am just here to learn as much as possible!
 
 <!--
 **PajeanuuhBruuh/PajeanuuhBruuh** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
